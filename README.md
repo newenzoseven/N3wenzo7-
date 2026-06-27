@@ -1,2 +1,2 @@
 # N3wenzo7-
-Sensibilidad y configuraciónes 
+Sensibilidad y configuraciónes ☠️
